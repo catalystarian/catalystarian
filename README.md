@@ -10,7 +10,7 @@ I'm currently diving deeper into advanced analytics and data science to better u
 I'm open to collaborating on digital marketing projects that aim to enhance online presence and drive growth. If you have a project that involves SEO, PPC, social media, or any other aspect of digital marketing, let's connect!
 
 ## 📫 How to reach me ...
-You can reach me via email at catalystarianmarketer@gmail.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/catalyst-arian/).
+You can reach me via email at nabilarianahmed@gmail.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/catalyst-arian/).
 
 ## 😄 Pronouns:
 He/Him
